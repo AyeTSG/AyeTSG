@@ -4,6 +4,6 @@ Welcome to my profile! I'm AyeTSG, but I usually go by TSG! Here you'll find pro
 
 #### Social Media
 
- - [Twitter](https://twitter.com/ayetsg)
+ - [Bluesky](https://bsky.app/profile/ayetsg.com)
  - [YouTube](https://youtube.com/c/ayetsg)
 
